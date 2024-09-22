@@ -10,6 +10,6 @@
 
 email: rafagarcialara28@gmail.com
 
-![@_rqfaxyz](https://www.instagram.com/_rqfaxyz/)
+![_rqfaxyz](https://www.instagram.com/_rqfaxyz)
 
 ![](https://media1.tenor.com/m/GVz497SFO60AAAAC/studio-ghibli-cutie.gif)
